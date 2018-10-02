@@ -1,0 +1,58 @@
+---
+index: 3
+title: If you are Arrested
+---
+## Tell your team
+
+Your first goal is to get outside support.
+
+*	Ask to see an independent lawyer, interpreter, embassy official, or medical professional as needed. 
+
+*	Be persistent. 
+
+*   Identify who you work for if appropriate.
+
+*   Verify lawyers were sent by your allies, not the local authorities, before telling them something important or acting on their advice. 
+
+*In some countries, lawyers appointed for you may share confidential information with the authorities or encourage you to confess on their behalf.*
+
+## Take mental notes
+
+Help your team understand the situation. 
+
+*   Who arrested you? 
+
+How did they identify themselves, and what agency are they with? 
+What is their attitude? 
+
+*   Where are they taking you?
+
+*   Who else was arrested?
+
+*   Why were you arrested? What is their agenda?
+
+*   How much do they know about you and your work?
+
+*   How long can they keep you?
+
+## Mentally prepare
+
+*   Stay calm; 
+
+*	Prepare for a long wait;
+
+* Calmly request anything you are entitled to (e.g. a phone call, a lawyer, or a toilet visit).
+
+*	You may be threatened, assaulted, cuffed, confined, or deprived of sleep, food, or water. 
+
+_Raise abuse or issues with your treatment immediately, with the authorities who made the arrest, your team, and your legal support._
+
+## Don't confess
+
+*   Hostile authorities may seek to obtain a confession to support false allegations.
+
+*   Avoid signing anything you don't agree with or written in a language you don't understand.
+
+## Don't volunteer information
+
+*	Be calm, helpful, and cooperative, but don't volunteer information.
